@@ -4,3 +4,4 @@
 
 
 ![image](https://user-images.githubusercontent.com/63163047/190920708-0e0ea600-bd25-4c4a-ae12-e26d479ea7cb.png)
+[Team Zeus.pptx.pdf](https://github.com/khadeom/Bank-of-Baroda-Hackthon/files/9610265/Team.Zeus.pptx.pdf)
